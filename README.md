@@ -2,5 +2,5 @@
 
 - 🦵 I’m currently at [msk.ai](https://msk.ai) building mobile apps which support patients through
    their orthopaedic care  
-- 📬 How to reach me: linkedin.com/in/jvanderwee or [@joe_vdw](https://twitter.com/joe_vdw) on Twitter
+- 📬 Reach me on [LinkedIn](https://linkedin.com/in/jvanderwee)
 - 😄 Pronouns: he/him
